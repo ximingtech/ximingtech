@@ -1,4 +1,4 @@
-👋 Hi, I’m Tan Ximing
+👋 Hi, I’m Tan Xi Ming
 
 💻 Software Engineer | 🌍 Freelance Developer | 🚀 Always Building
 
